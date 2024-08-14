@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :purple_heart
+### Boas vindas ao meu perfil 💜
 
 Meu nome é Jade Nicacio
 
